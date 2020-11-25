@@ -1,0 +1,1 @@
+# QAadv07HoroscopeVasylenkoSS
